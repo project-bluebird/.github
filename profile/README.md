@@ -1,1 +1,1 @@
-![318209960-a2e1c6b4-051a-4984-861f-9637565bc923](https://github.com/project-bluebird/.github/assets/5173737/d98a9138-475c-4ff1-a626-64c663f730c5)
+![image](https://github.com/project-bluebird/.github/assets/5173737/ca3df287-66cf-4b19-be05-d1ed02a2ebaf)
